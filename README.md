@@ -25,7 +25,9 @@ Areas of Interest
 - AI
 
 Connect With Me
+
 Telegram: t.me/Emesons
+
 Twitter/X: https://twitter.com/cryptojosh101  
 
 Always open to collaborating with innovative Web3 projects building the future of decentralized technology and AI .
