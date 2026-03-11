@@ -26,7 +26,7 @@ Areas of Interest
 
 Connect With Me
 
-Telegram: t.me/Emesons
+Telegram: @Emesons
 
 Twitter/X: https://twitter.com/cryptojosh101  
 
